@@ -1,0 +1,2 @@
+# Scratch
+Elso Scratch projekt
